@@ -1,2 +1,6 @@
-# .gg-axiomaccounts-9
-RAT HVNC Crypter Keylogger Stealer Backdoor Token Logger Discord Token Logger Session Hijacking Session Stealer Cookie Grabber FUD Obfuscator Spoofer Crypto GTAG Gorilla Tag Roblox
+# JOIN THE DISCORD .gg/axiomaccounts
+-----------------------------------------
+# hello
+This is not malware, others are. This is just to troll them so they don’t get logs. I currently have the fastest spammer, as they can’t code. I will post the source code soon to their stealer.
+------------------------------------------------
+Current Time: `2024-11-05 15:02:21`
